@@ -12,4 +12,4 @@ Maecenas rutrum mauris id volutpat pharetra. Donec vitae lacus sem. Mauris sit a
 
 [Pepe - Wikipedia](https://fi.wikipedia.org/wiki/Pepe)
 
-![Pepe](https://en.wikipedia.org/wiki/File:Feels_good_man.jpg)
+![Kranunheitin](http://i.imgur.com/pVNlvr8.jpg)
